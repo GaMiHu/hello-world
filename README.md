@@ -1,2 +1,4 @@
 # hello-world
-Welcome to Fairy Tail. Guild of Wizards and Badasses
+GaMiHu
+
+I am GMH like the show Fairy Tail, and video games (especially RPGs)
